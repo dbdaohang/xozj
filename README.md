@@ -1,4 +1,4 @@
-⭐️井喷福利⭐️ 地址发布页 👉 最新地址：https://xozj10.xyz
+⭐️井喷福利⭐️ 地址发布页 👉 最新地址：https://xozj.buzz
 
 永久地址：https://xozj.com
 
