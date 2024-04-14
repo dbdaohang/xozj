@@ -1,4 +1,4 @@
-⭐️想偶之家⭐️ 地址发布页 👉 最新地址：https://luck.xozj16.buzz/
+⭐️想偶之家⭐️ 地址发布页 👉 最新地址：https://fabu.xozj27.buzz
 
 永久地址：https://xozj.com
 
